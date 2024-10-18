@@ -1,4 +1,5 @@
-# TheGreenWhale加速器
+# TheGreenWhale免费加速器（永久免费，不限速，不限流，不看广告，注册就可以用）
+
 
 🚀TheGreenWhale加速器 | 回国看视频再也不卡啦！🌍
 🚀 终于可以回国看视频、听音乐，TheGreenWhale加速器一键回国畅想网络🌍✨
