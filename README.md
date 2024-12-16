@@ -23,4 +23,4 @@ TheGreenWhale加速器真的超级好用！它可以一键回国，让你在海�
 
 TheGreenWhale加速器下载方法
 
-[官网下载：]https://app.pidan.blog
+[官网下载：]https://pidanjiasu.com
